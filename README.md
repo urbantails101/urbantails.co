@@ -1,2 +1,2 @@
 # urbantails.co
-dog walking in Jackson serving wrights mill and wyndchase
+dog walking in Jackson TN serving wrights mill and wyndchase
